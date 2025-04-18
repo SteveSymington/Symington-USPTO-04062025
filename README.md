@@ -1,0 +1,1 @@
+# Symington-RealTimePricing-Patent-04062025
